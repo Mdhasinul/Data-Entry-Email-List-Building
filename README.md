@@ -1,0 +1,2 @@
+# Data-Entry-Email-List-Building
+Hi dear sir, My Previous Work: https://docs.google.com/spreadsheets/d/1IHHBulI5lDjAUng61m_v1APqUNTDAFncpXZCuSXOAA4/edit#gid=0 I am a professional data entry specialist. I will be able to assist you by entering data correctly without any mistakes. To get error-free services, It is the right place for you. I am waiting for your response. Thanks &amp; regards- Md. Hasinul Babu
